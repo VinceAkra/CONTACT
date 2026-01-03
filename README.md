@@ -3,7 +3,7 @@ contact XX:00
 
 https://vk.com/id1081420609
 
-https://discord.gg/aPyNmBgr
+https://discord.gg/33FjKmPx
 
 https://x.com/VinceAkrapovic
 
