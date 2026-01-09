@@ -1,7 +1,6 @@
 # CONTACT
 contact XX:00
 
-https://vk.com/id1081420609
 
 https://discord.gg/33FjKmPx
 
