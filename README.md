@@ -16,8 +16,6 @@ https://www.facebook.com/dfHy5hd5gdhhHHh6bbTEgh58zggGgzggtg6zegGz.onion/
 
 https://www.facebook.com/profile.php?id=61580163603010
 
-XXOO@exploit.im
-
 exploitxxoo@tutamail.com
 
 
