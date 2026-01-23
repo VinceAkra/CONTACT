@@ -18,6 +18,6 @@ https://www.facebook.com/profile.php?id=61580163603010
 
 exploitxxoo@tutamail.com
 
-@XX:00
+
 
 
