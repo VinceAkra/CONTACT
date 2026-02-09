@@ -20,6 +20,8 @@ exploitxxoo@tutamail.com
 
 XXOO@exploit.im
 
+https://www.reddit.com/user/AquitasVeritasV2/
+
 
 
 
